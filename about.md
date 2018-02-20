@@ -8,8 +8,11 @@ Some information about you!
 
 ### More Information
 
-Its been an amazing first week of orientation at MYOB. 
+The journey of   
 
+### More Information
+
+The journey   
 ### Contact me
 
 [kalyani.singh@myob.com](mailto:kalyani.singh@myob.com)
